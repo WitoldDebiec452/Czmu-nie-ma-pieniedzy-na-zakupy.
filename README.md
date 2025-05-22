@@ -1,0 +1,1 @@
+# Czmu-nie-ma-pieniedzy-na-zakupy.
